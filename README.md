@@ -8,7 +8,7 @@
 - [Urvi Ranjan](https://www.linkedin.com/in/urvi-ranjan-57a92019a/)
 
 # Video link 
-- [Youtube link](https://youtu.be/EjHqyZtqzy8)
+- [Youtube link](https://youtu.be/0KOIanXhIzQ)
 - [Video drive link](https://drive.google.com/file/d/1tha_f3Eu7GxNhfvi7Rp7nqfRhcOUVISs/view?usp=sharing)
 
 # Drive link 
